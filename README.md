@@ -1,0 +1,1 @@
+# monolith-adl-oyunum-i-in-play-storeda-yay-nlanmas-ad-na-gizlilik-politikas-na-ihtiyac-m-var
