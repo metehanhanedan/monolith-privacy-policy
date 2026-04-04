@@ -5,7 +5,7 @@ This repository contains the official Privacy Policy for the mobile game **MONOL
 ## 📄 Privacy Policy
 
 You can view the privacy policy here:
-👉 https://YOUR_USERNAME.github.io/monolith-privacy-policy/
+👉 https://metehanhanedan.github.io/monolith-privacy-policy/
 
 ## 🛡️ About the Game
 
